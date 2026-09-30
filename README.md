@@ -1,0 +1,1 @@
+# B-Z213d0a01--ortalama-hesaplama-
